@@ -10,7 +10,7 @@
 <img width="786" height="420" alt="Image" src="https://github.com/user-attachments/assets/059c3f83-e72e-4f9c-9985-028a95fb5ff4" />
 
 
-<span style="color:red">people say he ' s mean , but he ' s just mad . </span>  
+<span style="color:red">people say he 's mad , but he ' s not all that bad .</span>  
 
 
 
