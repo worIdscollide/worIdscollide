@@ -7,12 +7,11 @@
 <img width="2048" height="345" alt="myo38" src="https://github.com/user-attachments/assets/7d8dda67-d754-4e55-8d4e-1f051bc9b7af" />
 
 
-<img width="786" height="420" alt="Image" src="https://github.com/user-attachments/assets/059c3f83-e72e-4f9c-9985-028a95fb5ff4" />
+<img width="566" height="566" alt="7dc67c8d-c0ae-46cd-9390-0963536ba54b" src="https://github.com/user-attachments/assets/f4e7bb4a-8dac-4f68-8950-1adea72e44c4" />
 
 
-<span style="color:red">people say he 's mad , but he ' s not all that bad .</span>  
 
-
+<span style="color:red">people say she 's mad , but she ' s not all that bad .   (๑ᵔ⤙ᵔ๑) </span>  
 
 
 
